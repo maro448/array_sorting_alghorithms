@@ -1,2 +1,2 @@
-# algoritmi sortare inceput
+# ALGOOO
 WOOWOWOWOWO
